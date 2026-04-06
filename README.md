@@ -52,7 +52,7 @@ Optimization shifts effort toward measurable proxies, gradually replacing the un
 [View Image](./Filter%20Fatigue%20Cycle.png)
 
 Continuous information overload forces aggressive filtering, narrowing attention while increasing cognitive exhaustion and reliance on simplified signals.  
-[TikTok](https://www.tiktok.com/@realitydrift/photo/7610147781604412679) | [Pinterest](https://www.pinterest.com/pin/1019783909391158576/) | [X](https://x.com/TheRealityDrift/status/2020921387364278585) | [Flickr](https://www.flickr.com/photos/204143705@N04/55182821834/in/album-72177720332877459)
+[TikTok](https://www.tiktok.com/@realitydrift/photo/7591882470346231058) | [Pinterest](https://www.pinterest.com/pin/1019783909386883491/) | [X](https://x.com/TheRealityDrift/status/1990852757155156423) | [Flickr](https://www.flickr.com/photos/204143705@N04/55182729088/in/album-72177720332877459)
 
 ![Filter Fatigue Cycle.png](C:\Users\austi\Documents\GitHub\reality-drift-visuals\Filter%20Fatigue%20Cycle.png)
 
